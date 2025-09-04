@@ -1,2 +1,2 @@
 # Sunshine.github.io
-Learning GitHub is funnn.
+Learning GitHub is funnnnnnn.
